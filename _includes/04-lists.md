@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+1. Dogs
+2. Ice Cream
+3. My friends
+  3a. Getting ice cream with my friends
+  3b. Giving my dogs ice cream
+ 
