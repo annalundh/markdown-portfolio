@@ -1,1 +1,1 @@
-alt= "golden retriever puppy" https://thezebra.org/wp-content/uploads/2020/07/Training-Time-Aug2020-GR-with-ball-scaled.jpg
+! [cartoon of brain] (https://image.freepik.com/free-vector/cute-brain-cartoon_24640-54407.jpg)
